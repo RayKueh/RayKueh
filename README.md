@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @RayKueh
-- Email: b09209025@ntu.edu.tw 
+- Email: r13229018@ntu.edu.tw
+- Facebook: https://www.facebook.com/kuehjue/
 
 
 <!---
